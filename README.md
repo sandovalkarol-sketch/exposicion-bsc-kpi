@@ -1,1 +1,0 @@
-# exposicion-bsc-kpi
